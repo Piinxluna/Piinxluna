@@ -1,7 +1,5 @@
 ## Hi there :)
-
-I'm Pingping or Piinxluna. ✨
-
+## Piinxluna's here! ✨
 A cute (?) computer engineering student passionate about website developement and project management!
 
 ### About me 🤔
